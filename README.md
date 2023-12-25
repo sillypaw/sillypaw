@@ -1,7 +1,4 @@
-- haaiii im CASPER!!!!!!!!
-- he/him exclusively :3c
-- i love you!!!!!!
-
+im feeling......yaoiful
 <!---
 sillypaw/sillypaw is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
